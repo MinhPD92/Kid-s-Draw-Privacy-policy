@@ -1,0 +1,1 @@
+# Kid-s-Draw-Privacy-policy
